@@ -1,1 +1,1 @@
-# paulinacosta-Inteligencia-Artificial-Jueves_FIME
+Inteligencia-Artificial-Jueves_FIME
